@@ -1,0 +1,1 @@
+# semya-shop
